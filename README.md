@@ -4,4 +4,3 @@
 
 [ʚ CARRD ɞ](https://butchakira.carrd.co)
 
-[ʚ ATABOOK ɞ](https://femakechi.atabook.org)
