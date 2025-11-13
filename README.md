@@ -6,7 +6,7 @@
 
 <p align="center"
 
-![grph](https://myosgraphics.carrd.co/assets/images/image01.png?v=e3e19354)
+![grph](https://myopoop.carrd.co/assets/images/image01.jpg?v=3c5ac566)
 
   <p align="center"
 
