@@ -8,7 +8,7 @@ Intertɯıned, seɯn together
 𑙕 ៸៸◞ ˕ ด⠀⠀ ׁ  ⠀ ⠀ ♭
 <p align="center"
   
-[ SONGS ⋱ ](https://open.spotify.com/playlist/5kqzXYGbsZ550OJRJOXMmz?si=89d9d127d9b743a6) 𝜗୧ [⋱ RENTRY ](https://rentry.co/ukeakechi) 
+[ SONGS ⋱ ](https://open.spotify.com/playlist/5kqzXYGbsZ550OJRJOXMmz?si=89d9d127d9b743a6) 𝜗୧ [⋱ RENTRY ](https://rentry.co/girlgoros) 
 
 <p align="center"
 
