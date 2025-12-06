@@ -12,7 +12,7 @@ Intertɯıned, seɯn together
 
 <p align="center"
 
-![](https://myopoop.carrd.co/assets/images/image05.jpg?v=9ec1ec50)
+![](https://myosgraphics.carrd.co/assets/images/image09.png?v=1956d732%20)
 
 <p align="center"
 
