@@ -13,7 +13,7 @@ Intertɯıned, seɯn together
 <p align="center"
 
 
-![ib](https://64.media.tumblr.com/d3118a9bf55f5d0980b62c7c7dcd412a/9bd63d20ef8fb040-04/s540x810/a06c611e094a550f3f9929e921ab4deae2189d3c.gif)
+![ib](https://i.pinimg.com/736x/a9/09/b4/a909b484405bfb0fbe3f8dd8163ecefd.jpg)
 
 
 <p align="center"
