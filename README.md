@@ -1,9 +1,9 @@
 
 
 <p align="center"> 
-Not α lot, just forever
+I ɡᥣoω ριᥒk ιᥒ thᥱ ᥒιɡht ιᥒ ɱყ ɾooɱ
 <p align="center"> 
-Intertɯıned, seɯn together
+I'νᥱ ᑲᥱᥱᥒ ᑲᥣossoɱιᥒɡ ᥲᥣoᥒᥱ oνᥱɾ ყoυ
 <p align="center"> 
 𑙕 ៸៸◞ ˕ ด⠀⠀ ׁ  ⠀ ⠀ ♭
 <p align="center"
@@ -13,7 +13,7 @@ Intertɯıned, seɯn together
 <p align="center"
 
 
-![ib](https://i.pinimg.com/736x/a9/09/b4/a909b484405bfb0fbe3f8dd8163ecefd.jpg)
+![ib](https://myopoop.carrd.co/assets/images/image07.gif?v=6ad9b456)
 
 
 <p align="center"
