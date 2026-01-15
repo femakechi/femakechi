@@ -13,11 +13,10 @@ I'νᥱ ᑲᥱᥱᥒ ᑲᥣossoɱιᥒɡ ᥲᥣoᥒᥱ oνᥱɾ ყoυ
 <p align="center"
 
 
-![ib](https://myopoop.carrd.co/assets/images/image07.gif?v=6ad9b456)
-
+![ib](https://myopoop.carrd.co/assets/images/image08.jpg?v=7ba9d875)
 
 <p align="center"
 
-![](https://komarev.com/ghpvc/?username=femakechi&color=ffe8ec)
+![‎ʚֺྀི𑁦𐑳ׅ𑁦ੰׅॽ  ](https://komarev.com/ghpvc/?username=femakechi&color=ffe8ec)
 
 
