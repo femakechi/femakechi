@@ -1,9 +1,20 @@
 
 
+<p align="center"> 
+I ɡᥣoω ριᥒk ιᥒ thᥱ ᥒιɡht ιᥒ ɱყ ɾooɱ
+
+<p align="center"> 
+I'νᥱ ᑲᥱᥱᥒ ᑲᥣossoɱιᥒɡ ᥲᥣoᥒᥱ oνᥱɾ ყoυ
+
+<p align="center"> 
+𑙕 ៸៸◞ ˕ ด⠀⠀ ׁ  ⠀ ⠀ ♭
+
+<p align="center"
+
 
 <p align="center"
   
-[ SONGS ⋱ ](https://open.spotify.com/playlist/5kqzXYGbsZ550OJRJOXMmz?si=89d9d127d9b743a6) 𝜗୧ [⋱ RENTRY ](https://rentry.co/girlgoros) 
+[ SONGS ⋱ ](https://open.spotify.com/playlist/5kqzXYGbsZ550OJRJOXMmz?si=89d9d127d9b743a6) 𝜗୧ [⋱ STRAWPAGE ](https://femdetective.straw.page)
 
 <p align="center"
 
