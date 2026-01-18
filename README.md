@@ -19,7 +19,7 @@ I'νᥱ ᑲᥱᥱᥒ ᑲᥣossoɱιᥒɡ ᥲᥣoᥒᥱ oνᥱɾ ყoυ
 <p align="center"
 
 
-![ib](https://myopoop.carrd.co/assets/images/image01.jpg?v=7ba9d875)
+![ib](https://i.pinimg.com/originals/17/9d/e1/179de1c21a235d07106de95ed715b12b.gif)
 
 <p align="center"
 
