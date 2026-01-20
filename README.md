@@ -1,4 +1,7 @@
+<p align="center"
 
+
+![hi](https://i.imgur.com/z3wNowv.gif)
 
 <p align="center"> 
 I ɡᥣoω ριᥒk ιᥒ thᥱ ᥒιɡht ιᥒ ɱყ ɾooɱ
@@ -16,7 +19,7 @@ I ɡᥣoω ριᥒk ιᥒ thᥱ ᥒιɡht ιᥒ ɱყ ɾooɱ
 <p align="center"
 
 
-![ib](https://myopoop.carrd.co/assets/images/image01.jpg?v=7ba9d875)
+![ib](https://pixelsafari.neocities.org/stamps/cookierun.gif)
 
 <p align="center"
 
