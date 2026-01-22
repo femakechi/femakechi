@@ -6,6 +6,9 @@ I ɡᥣoω ριᥒk ιᥒ thᥱ ᥒιɡht ιᥒ ɱყ ɾooɱ
 <p align="center"> 
 𑙕 ៸៸◞ ˕ ด⠀⠀ ׁ  ⠀ ⠀ ♭
 
+<p align="center">
+ ⁽　　c + h　　okay　╱　read strawpage 𓎟𓎟̣̣̣  ̣̣̣   
+
 <p align="center"
 
 
@@ -16,7 +19,7 @@ I ɡᥣoω ριᥒk ιᥒ thᥱ ᥒιɡht ιᥒ ɱყ ɾooɱ
 <p align="center"
 
 
-![ib](https://pixelsafari.neocities.org/stamps/japanmascots.gif) ♡ ![ib](https://autism.crd.co/assets/images/gallery05/2fb90cad_original.png?v=d6547f5c)
+![ib](https://myosgraphics.carrd.co/assets/images/image08.png?v=a7dda729)
 
 <p align="center"
 
