@@ -19,7 +19,7 @@ I ɡᥣoω ριᥒk ιᥒ thᥱ ᥒιɡht ιᥒ ɱყ ɾooɱ
 <p align="center"
 
 
-![ib](https://myosgraphics.carrd.co/assets/images/image08.png?v=a7dda729)
+![ib](https://myosgraphics.carrd.co/assets/images/image10.gif?v=a7dda729)
 
 <p align="center"
 
