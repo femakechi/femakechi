@@ -13,13 +13,15 @@ I ɡᥣoω ριᥒk ιᥒ thᥱ ᥒιɡht ιᥒ ɱყ ɾooɱ
 
 
 <p align="center"
+
   
 [ SONGS ⋱ ](https://open.spotify.com/playlist/5kqzXYGbsZ550OJRJOXMmz?si=89d9d127d9b743a6) 𝜗୧ [⋱ STRAWPAGE ](https://femdetective.straw.page)
+ 
+<p align="center">
 
-<p align="center"
+ 
+<img src="https://myosgraphics.carrd.co/assets/images/image10.gif?v=7015f7bb" width="410">
 
-
-![ib](https://myosgraphics.carrd.co/assets/images/image10.gif?v=a7dda729)
 
 <p align="center"
 
