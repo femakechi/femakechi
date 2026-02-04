@@ -7,7 +7,7 @@ I ɡᥣoω ριᥒk ιᥒ thᥱ ᥒιɡht ιᥒ ɱყ ɾooɱ
 𑙕 ៸៸◞ ˕ ด⠀⠀ ׁ  ⠀ ⠀ ♭
 
 <p align="center">
- ⁽　　c + h　　okay　╱　read strawpage 𓎟𓎟̣̣̣  ̣̣̣   
+ ⁽　　c + h　　okay　╱　read strawpage!  𓎟𓎟̣̣̣  ̣̣̣   
 
 <p align="center"
 
@@ -15,7 +15,7 @@ I ɡᥣoω ριᥒk ιᥒ thᥱ ᥒιɡht ιᥒ ɱყ ɾooɱ
 <p align="center"
 
   
-[ SONGS ⋱ ](https://open.spotify.com/playlist/5kqzXYGbsZ550OJRJOXMmz?si=89d9d127d9b743a6) 𝜗୧ [⋱ STRAWPAGE ](https://femdetective.straw.page)
+[ SONGS ⋱ ](https://open.spotify.com/playlist/5kqzXYGbsZ550OJRJOXMmz?si=89d9d127d9b743a6) 𝜗୧ [⋱ STRAWPAGE ](https://femdetective.straw.page) 𝜗୧[⋱ATABOOK](https://femakechi.atabook.org)
  
 <p align="center">
 
