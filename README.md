@@ -1,13 +1,7 @@
 
 
-<p align="center"> 
-I ɡᥣoω ριᥒk ιᥒ thᥱ ᥒιɡht ιᥒ ɱყ ɾooɱ
-
-<p align="center"> 
-𑙕 ៸៸◞ ˕ ด⠀⠀ ׁ  ⠀ ⠀ ♭
-
 <p align="center">
- ⁽　　c + h　　okay　╱　read strawpage!  𓎟𓎟̣̣̣  ̣̣̣   
+ ₊ ㅤㅤㅤ 20 ‎ ‎ 𓏼‎  ㅤㅤc + h‎ ‎ㅤ ‎ ‎ read sp ! ‎ 
 
 <p align="center"
 
@@ -15,12 +9,12 @@ I ɡᥣoω ριᥒk ιᥒ thᥱ ᥒιɡht ιᥒ ɱყ ɾooɱ
 <p align="center"
 
   
-[ SONGS ⋱ ](https://open.spotify.com/playlist/5kqzXYGbsZ550OJRJOXMmz?si=89d9d127d9b743a6) 𝜗୧ [⋱ STRAWPAGE ](https://femdetective.straw.page) 𝜗୧[⋱ATABOOK](https://femakechi.atabook.org)
+[ SONGS ⋱ ](https://open.spotify.com/playlist/5kqzXYGbsZ550OJRJOXMmz?si=89d9d127d9b743a6) 𝜗୧ [⋱ STRAWPAGE ](https://femdetective.straw.page) 𝜗୧ [⋱ATABOOK](https://femakechi.atabook.org)
  
 <p align="center">
 
  
-<img src="https://myosgraphics.carrd.co/assets/images/image10.gif?v=7015f7bb" width="410">
+<img src="https://i.pinimg.com/736x/4c/be/23/4cbe23d0c81d565229bcabc6ac971d8f.jpg" width="410">
 
 
 <p align="center"
