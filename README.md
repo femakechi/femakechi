@@ -14,7 +14,7 @@
 <p align="center">
 
  
-<img src="https://64.media.tumblr.com/e67640966bfbb983027c78923f99f58d/f57dcb00350b2854-3c/s2048x3072_c428,0,99465,100000/e8b23d99f084f3d0fb4ca730b044c3b50bc045f8.gif" width="410">
+<img src="https://i.pinimg.com/736x/7f/bc/56/7fbc567cf355f4bb58d2125bc6bd44c3.jpg" width="410">
 
 
 <p align="center"
