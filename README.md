@@ -9,7 +9,7 @@
 <p align="center"
 
   
-[songs](https://open.spotify.com/playlist/5kqzXYGbsZ550OJRJOXMmz?si=89d9d127d9b743a6)  [⋱ strawpage ](https://femdetective.straw.page)  [⋱ atabook](https://femakechi.atabook.org)
+[pronouns](https://en.pronouns.page/@wifelyfun) 𖢥 [ strawpage ](https://femdetective.straw.page) 𖢥 [ atabook](https://femakechi.atabook.org)
  
 <p align="center">
 
