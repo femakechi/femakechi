@@ -9,7 +9,7 @@
 <p align="center"
 
   
-[pronouns](https://en.pronouns.page/@wifelyfun) 𖢥 [ strawpage ](https://femdetective.straw.page) 𖢥 [ atabook](https://femakechi.atabook.org)
+[pronouns](https://en.pronouns.page/@wifelyfun) 𖢥 [ strawpage ](https://bunnify.straw.page) 𖢥 [ atabook](https://femakechi.atabook.org)
  
 <p align="center">
 
