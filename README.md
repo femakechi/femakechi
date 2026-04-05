@@ -14,11 +14,11 @@
 <p align="center">
 
  
-<img src="https://64.media.tumblr.com/9db4fdf5b3042b238403d860a56a64ab/78d0b1a3bf1c7de3-99/s640x960/e62931abca861bb79cca24a08ae915cef250afc1.pnj" width="300">
+<img src="https://64.media.tumblr.com/8be0353ff61e6d2d413f1a46ec91818a/tumblr_on2sck9Rc91w8aqnzo3_500.gifv" width="500">
 
 
 <p align="center"
 
-![‎ʚֺྀི𑁦𐑳ׅ𑁦ੰׅॽ  ](https://komarev.com/ghpvc/?username=femakechi&color=d4d2cf)
+![‎ʚֺྀི𑁦𐑳ׅ𑁦ੰׅॽ  ](https://komarev.com/ghpvc/?username=femakechi&color=ffb5f1)
 
 
