@@ -14,7 +14,7 @@
 <p align="center">
 
  
-<img src="https://64.media.tumblr.com/8be0353ff61e6d2d413f1a46ec91818a/tumblr_on2sck9Rc91w8aqnzo3_500.gifv" width="500">
+<img src="https://i.pinimg.com/736x/9b/25/c5/9b25c5b7e6f6ddf9009387b46df9645a.jpg" width="300">
 
 
 <p align="center"
