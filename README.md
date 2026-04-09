@@ -9,16 +9,16 @@
 <p align="center"
 
   
-[pronouns](https://en.pronouns.page/@wifelyfun) 𖢥 [ strawpage ](https://bunnify.straw.page) 𖢥 [ atabook](https://femakechi.atabook.org)
+[pronouns](https://en.pronouns.page/@wifelyfun)  ̥̈ [ strawpage ](https://bunnify.straw.page)  ̥̈ [ atabook](https://femakechi.atabook.org)
  
 <p align="center">
 
  
-<img src="https://i.pinimg.com/736x/9b/25/c5/9b25c5b7e6f6ddf9009387b46df9645a.jpg" width="300">
+<img src="https://64.media.tumblr.com/6fb61f7667566b24e96512d210e51c02/e6fb748c02fc10ef-36/s2048x3072/e356b734f5b6cde9ed67c82fafd63f0c00f0b14f.jpg" width="430">
 
 
 <p align="center"
 
-![‎ʚֺྀི𑁦𐑳ׅ𑁦ੰׅॽ  ](https://komarev.com/ghpvc/?username=femakechi&color=ffb5f1)
+![‎ʚֺྀི𑁦𐑳ׅ𑁦ੰׅॽ  ](https://komarev.com/ghpvc/?username=femakechi&color=FEF5F6)
 
 
