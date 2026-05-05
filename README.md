@@ -14,11 +14,11 @@
 <p align="center">
 
  
-<img src="https://myosgraphics.carrd.co/assets/images/image11.png?v=088a6779" width="300">
+<img src="https://i.pinimg.com/1200x/de/7f/39/de7f399870239b4239bc9ef627ca26fa.jpg" width="600">
 
 
 <p align="center"
 
-![‎ʚֺྀི𑁦𐑳ׅ𑁦ੰׅॽ  ](https://komarev.com/ghpvc/?username=femakechi&color=5D5D41)
+![‎ʚֺྀི𑁦𐑳ׅ𑁦ੰׅॽ  ](https://komarev.com/ghpvc/?username=femakechi&color=cce0e3)
 
 
