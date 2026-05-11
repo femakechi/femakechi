@@ -1,7 +1,7 @@
 
 
 <p align="center">
- c + h ` read my strawpage  
+ c + h ok ` read my strawpage  
 
 <p align="center"
 
@@ -19,6 +19,12 @@
 
 <p align="center"
 
-![‎ʚֺྀི𑁦𐑳ׅ𑁦ੰׅॽ  ](https://komarev.com/ghpvc/?username=femakechi&color=cce0e3)
+ Ꮚᵕ̣̣̣̣̣ ہ ᵕ̣̣̣̣̣̣ Ꮚ    ◌  ⠀𓈒  ☆⠀ ˚  
+ 
+
+
+<p align="center"
+ 
+ ![‎ʚֺྀི𑁦𐑳ׅ𑁦ੰׅॽ  ](https://komarev.com/ghpvc/?username=femakechi&color=fcedfc)
 
 
